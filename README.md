@@ -1,2 +1,2 @@
 # nlhldxa.github.io
-个人主页
+努力很累但心安
